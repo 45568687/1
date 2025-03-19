@@ -1,3 +1,5 @@
-# CASİBOM : CASİBOM GİRİŞ 
-## [SİTEYE GİRİŞ İÇİN TIKLAYINIZ ✅](https://shortlinkapp.com/casibom)
-## [SİTEYE GİRİŞ İÇİN TIKLAYINIZ ✅](https://shortlinkapp.com/casibom)
+## [SİTEYE GİRİŞ İÇİN TIKLAYINIZ ✅](https://t.ly/casibomsite)
+## [SİTEYE GİRİŞ İÇİN TIKLAYINIZ ✅](https://t.ly/casibomsite)
+## [SİTEYE GİRİŞ İÇİN TIKLAYINIZ ✅](https://t.ly/casibomsite)
+## [SİTEYE GİRİŞ İÇİN TIKLAYINIZ ✅](https://t.ly/casibomsite)
+## [SİTEYE GİRİŞ İÇİN TIKLAYINIZ ✅](https://t.ly/casibomsite)
